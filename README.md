@@ -15,7 +15,7 @@ Welcome to **Sensichrome Innovations**! We're committed to pushing the boundarie
 ## Get in Touch 📬
 Feel free to reach out to us for collaborations, inquiries, or just to say hi!
 
-📧 **Email**: [contact@sensinovations.com]
+📧 **Email**: sensinovations.com
 
 ---
 
