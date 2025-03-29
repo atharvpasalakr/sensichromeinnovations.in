@@ -15,8 +15,7 @@ Welcome to **Sensichrome Innovations**! We're committed to pushing the boundarie
 ## Get in Touch 📬
 Feel free to reach out to us for collaborations, inquiries, or just to say hi!
 
-📧 **Email**: [contact@sensichrome.com](mailto:contact@sensichrome.com)  
-🌐 **Website**: [www.sensichrome.com](https://www.sensichrome.com)
+📧 **Email**: [contact@sensichrome.com](mailto:contact=sensinovations.com)  
 
 ---
 
